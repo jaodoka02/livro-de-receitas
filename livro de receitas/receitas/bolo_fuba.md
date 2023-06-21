@@ -8,6 +8,3 @@ Bolo de fuba
 
 bater tudo no liquidificador
 assar por 40 min.
-
-
-binnnnnnnnnnnnnnnnnnnnnnnnnnnnn
