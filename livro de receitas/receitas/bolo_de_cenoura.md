@@ -1,7 +1,7 @@
 Bolo de cenoura
 
 4 ovos
-3 cenouras 
+4 cenouras 
 3 xícaras de farinha 
 1 e meia xícara de açúcar 
 1 xícara de óleo
