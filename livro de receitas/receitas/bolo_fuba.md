@@ -6,6 +6,7 @@ Bolo de fuba
 1 e meia xícara de açúcar
 2 colher de fermento
 
+
 bater tudo no liquidificador
 assar por 40 min.
 Agora é só comer
