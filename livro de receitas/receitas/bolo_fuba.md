@@ -4,7 +4,7 @@ Bolo de fuba
 3 ovos 
 1 xícara de oleo 
 1 e meia xícara de açúcar
-1 colher de fermento
+1/2 colher de fermento
 
 bater tudo no liquidificador
 assar por 40 min.
